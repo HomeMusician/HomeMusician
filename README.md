@@ -2,7 +2,7 @@
 - 👀 I’m interested in music, football, IT
 - 🌱 I’m currently learning IT ^_^
 - 💞️ I’m looking to collaborate on ... ... .. . Yes. im looking )
-- 📫 How to reach me my email ravcickdogmail.ru
+- 📫 How to reach me my email ravchickdogmail.ru
 
 <!---
 HomeMusician/HomeMusician is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
